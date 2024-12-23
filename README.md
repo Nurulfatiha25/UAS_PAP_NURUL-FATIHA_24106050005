@@ -1,1 +1,2 @@
 # UAS_PAP_NURUL-FATIHA_24106050005
+https://github.com/Nurulfatiha25/UAS_PAP_NURUL-FATIHA_24106050005/releases/tag/Project_UAS_PAP
